@@ -9,7 +9,7 @@
 
 ## Where you at ❓
 
-- 📱 I'm always keeping myself busy but feel free to reach out to me on discord **`KyleS1872#0001`**  
+- 📱 I'm always keeping myself busy but feel free to reach out to me on [discord](https://discord.com/users/202185914120798209/) 
 
 <br/>
 
